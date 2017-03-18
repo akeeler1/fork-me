@@ -18,7 +18,7 @@ Abhay	Gohel
 
 Lucy Gong
 
-Andrea Keeler
+Andrea Keeler-Hi! I am current Sophomore from Miami, Florida!
 
 Brian Kim
 
